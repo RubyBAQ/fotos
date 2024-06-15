@@ -7,7 +7,8 @@ Todas las fotos de todos los eventos
 ### 2024
 
 - 5 de Abril
-- ??????
+- 14 de Junio
+- ???
 
 ### 2023
 
