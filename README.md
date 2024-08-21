@@ -8,7 +8,7 @@ Todas las fotos de todos los eventos
 
 - 5 de Abril
 - 14 de Junio
-- ???
+- 20 de Agosto
 
 ### 2023
 
